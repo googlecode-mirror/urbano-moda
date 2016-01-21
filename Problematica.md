@@ -1,0 +1,3 @@
+# Problemática #
+
+Urbano moda se ha puesto en contacto con nosotros ya que necesita nuevas estrategias y asesoría técnica para ofertar su producto en internet y darse a conocer con más consumidores ya que Urbano Moda a detectado una disminución en sus ventas puesto que existen varias tiendas que ofrecen sus servicios en línea, por lo que tomara nuevas alternativas  de ventas implementando nuevas tecnologías   innovadoras  para satisfacer las necesidades de sus clientes, con el fin de obtener ventajas competitivas.
